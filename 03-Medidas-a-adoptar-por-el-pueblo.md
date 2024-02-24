@@ -45,4 +45,16 @@ y un esfuezo decidido en *producir*.
 
    No abusar en la compra de vestuario.
 
+   Efectuar las compras donde los precios sean menores, como cooperativas, mutiales y proveedurias gremiales o sociales.
+
+   Desechar prejuicios y concurrir a ferias y proveedurias en vez de hacerse traer las mercaderias a domicilio, a mayor precio.
+
+   No ser "rastacueros" y pagar lo que le pidan, sino vigilar que no le roben, denunciando en cada caso al comerciante inescrupuloso.
+
+   Evitar gastos superfluos, aun cuando fueran a plazos.
+
+   Limitar la concurrencia al hipodromo, los cabarets y salas de juego a lo que permitan los medios, despues de haber satisfecho las necesidades esenciales.
+
 3. Producir mas   
+
+   Este es    
