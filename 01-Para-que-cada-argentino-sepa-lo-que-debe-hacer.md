@@ -98,4 +98,42 @@ Sin embargo, ya en 1951 se observa que esa reaccion favorable no se acentua por 
   Sin embargo preferimos afrontar la situacion con nuestro propios medios sin recurrir al peligroso recurso de los emprestitos extranjeros, que solo sirven
   para hipotecar el futuro y comprometer la propia independencia y soberania.
 
-  
+  No tenemos deudas, poseemos un pais rico y orgulloso, tenemos medios y hombres para trabajar.
+  La solucion esta entonces en el pais y en nuestros hombres.
+  Es menester que nos decidamos a emprender la tarea con decision y espiritu de trabajo.
+  Si es necesario que nos decidamos a emprender la tarea con decision y espiritu de trabajo.
+  Si es necesario nos desprenderemos de lo superfluo y si es indispensable nos someteremos a cualquier sacrificio.
+  No se triunfa sin decision, sin ese espiritu y sin ese sacrificio cuando es necesario.
+
+  Durante los cinco años que siguieron a la reforma economica-social no hemos pedido al pueblo ningun esfuerzo extraordinario y menos aun el menor sacrificio
+  para realizar su felicidad y consolidar la grandeza de la Patria.
+
+  Pero yo se bien que el dia que ello fuera necesario y tuviera que pedirlo no demandaria en vano.
+  Porque conozco a mi pueblo y se de sus reservas morales y capacidad energetica, es por lo que me anima tan profuda fe en sus destinos y en la grandeza
+  segura de esta Patria.
+
+  La solucion sera la que al propio tiempo que nos permita consolidar definitivamente todas nuestras realizaciones, de tambien satisfacciones y desequilibrios
+  observados en las actuales circunstancias.
+  Podriamos resumir como factores esenciales de esa solucion a:
+
+  - aumento de la produccion
+  - austeridad en el consumo y
+  - fomento del ahorro
+
+  En nuestro caso, la austeridad en el consumo no implica sacrificar lo necesario, significa en cambio:
+
+  - eliminar el derroche
+  - reducir gastos innecesarios
+  - renunciar a lo superfluo y
+  - postergar lo que no sea imprescindible
+
+  Con ese reajuste a nuestro consumo lograremos:
+
+  - aumentar las exportaciones y
+  - reducir las importaciones
+
+  Si a la politica de austeridad agregamos un aumento solo del 20% en la produccion solucionaremos:
+
+  - el problema de las divisas
+  - parte del problema de la inflacion y
+  - consolidaremos la capitalizacion del pais.
