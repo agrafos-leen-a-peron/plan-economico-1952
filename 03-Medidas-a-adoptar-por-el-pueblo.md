@@ -36,8 +36,13 @@ La familia debe organizarse para ordenar su desenvolvimiento equilibrado. Para e
 y un esfuezo decidido en *producir*.
 
 1. Consumir menos
+   
    La regla debe ser ahorrar, no derrochar.
+   
    Economizar en las compras, adquirir lo necesario, consumir lo imprescindible.
+   
    No derrochar alimentos que llenan los cajones de basuras.
+
+   No abusar en la compra de vestuario.
 
 3. Producir mas   
